@@ -1,0 +1,2 @@
+# Ko
+To get diamond
